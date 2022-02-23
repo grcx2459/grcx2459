@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @grcx2459
-- 👀 I’m interested in  电脑维修
+- 👀 I’m interested in 
 - 🌱 I’m currently learning senior high school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
